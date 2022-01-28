@@ -1,2 +1,1 @@
-# AMZC-Repo
-Mirror Bot Repo For Abrar Mirror Zone Cloud (Telegram)
+# Donate 69$ and take repo
